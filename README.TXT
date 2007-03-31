@@ -533,3 +533,14 @@ prompt, type "man perlre".
 Des Lee:	desimus.prime / gmail.com
 
 All comments / suggestions welcome
+
+If you're interested in signing up for a good Usenet provider,
+please consider signing up with Giganews via this link:
+
+http://www.giganews.com/?c=gn289495
+
+Or using my referral id: gn289495
+
+(I get credited $15 or $20 for each referee who stays on
+for 90 days)
+
